@@ -1,0 +1,1 @@
+QOL changes that enhances your Hypixel Skyblock experience. Created to add features for Hypixel Skyblock
